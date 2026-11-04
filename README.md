@@ -1,0 +1,1 @@
+# avatimnatal2026lancamento
